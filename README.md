@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GUAJ030218HASRLLA0
+GUAJ030218HASRLLA0
